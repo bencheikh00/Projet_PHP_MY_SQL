@@ -1,0 +1,6 @@
+# MEMBRES DU GROUPE 
+
+Rokhaya Cathy DIOP 219608
+Ta Dabel CISSOKHO  219849
+Mariama DIOUF  220622
+Saer Ben Cheikh SENGHOR  219994
